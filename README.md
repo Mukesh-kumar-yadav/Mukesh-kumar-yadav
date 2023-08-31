@@ -27,5 +27,5 @@ Collaborated with cross-functional teams to optimize website performance and use
 🔹 Contact:
 Feel free to reach out to me at 📞 8264604731 or 📧 me@mukeshkumaryadav.com. Let's connect and explore opportunities to collaborate!
 
-🔹 LinkedIn:[linkedin.com/in/mukeshyadav98](https://www.linkedin.com/in/mukeshyadav98/)https://www.linkedin.com/in/mukeshyadav98/ 
+🔹 LinkedIn:[linkedin.com/in/mukeshyadav98](https://www.linkedin.com/in/mukeshyadav98/)
 
